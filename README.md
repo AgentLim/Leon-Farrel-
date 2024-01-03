@@ -1,0 +1,6 @@
+![WhatsApp Image 2024-01-02 at 11 41 11](https://github.com/AgentLim/Leon-Farrel-/assets/130759371/0b8eafd4-7d28-4153-b2a7-97028ab53971)
+![WhatsApp Image 2024-01-02 at 11 42 01](https://github.com/AgentLim/Leon-Farrel-/assets/130759371/9ea2b59b-02ca-4bc7-8dd5-9477b12599b8)
+![WhatsApp Image 2024-01-02 at 11 41 51](https://github.com/AgentLim/Leon-Farrel-/assets/130759371/3091aa43-770d-4b4e-8fcd-81b7bffad487)
+![WhatsApp Image 2024-01-02 at 11 41 40](https://github.com/AgentLim/Leon-Farrel-/assets/130759371/f489928f-ab2a-4d62-a55a-4bc8450b4207)
+![WhatsApp Image 2024-01-02 at 11 41 31](https://github.com/AgentLim/Leon-Farrel-/assets/130759371/1d5d8e22-14ca-46b6-a7ed-ebf79da1fbf6)
+![WhatsApp Image 2024-01-02 at 11 41 20](https://github.com/AgentLim/Leon-Farrel-/assets/130759371/c90357e6-b119-43c2-9d58-78724aeedef5)
